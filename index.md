@@ -1,4 +1,4 @@
-### Welcome to Yana's Serenitea Pot in Genshin Impact  
+# Yana's Serenitea Pot in Genshin Impact  
 Owned by Elyana Marie Dy
 
 *I show my designs and tutorials in my teapot.*
