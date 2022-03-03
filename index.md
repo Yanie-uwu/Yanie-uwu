@@ -9,7 +9,7 @@ Owned by Elyana Marie Dy
 ---
 ### Tutorial on how to create an alchemy room
 
-![alt text](https://github.com/Yanie-uwu/Yanie-uwu/blob/main/20220302130438.png)
+https://github.com/Yanie-uwu/Yanie-uwu/blob/main/20220302130438.png
 
 The alchemy room is one of my favorite designs in serenitea pot and I will show a tutorial on how to design an alchemy room. 
 
