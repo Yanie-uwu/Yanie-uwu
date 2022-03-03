@@ -16,6 +16,18 @@ The alchemy room is one of my favorite designs in serenitea pot and I will show 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/T3FKo1sTb6M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+--- 
+### My Exterior Designs
+
+**The Jade Palace**
+![20220303181150](https://user-images.githubusercontent.com/94219457/156600841-4539c5bb-63c0-4ebf-b25b-6ac83d5beb42.png)
+
+**Peaceful Village** 
+![20220303181651](https://user-images.githubusercontent.com/94219457/156601464-b9087f16-4c88-4cd8-9204-8eeefd42a1af.png)
+
+**The Bathhouse**
+![20220303182055](https://user-images.githubusercontent.com/94219457/156601850-e53d3e0d-bcc3-4b3b-80de-97258130b4cd.png)
+
 ---
 ### Follow me 
 [Facebook](https://www.facebook.com/elyanamarie.dy.7)
